@@ -1,5 +1,5 @@
 ### Hi there 👋
-nice to have you dropping by!
+#### nice to have you dropping by!
 
 🔭 I’m currently studying to become a Front End Developer
 
