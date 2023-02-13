@@ -6,7 +6,8 @@
 
 🌍 I'm situated in Karlstad, Sweden. 
 
-⚡ Fun facts: I'm the Captain of Mikkeller Running Club Karlstad but I'm not a runner...
+⚡ Acout me! <br>
+I'm the Captain of Mikkeller Running Club Karlstad but I'm not a runner...
  And. I do have a university degree in James Bond knowledge...
 
 
