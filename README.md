@@ -7,8 +7,7 @@
 🌍 I'm situated in Karlstad, Sweden. 
 
 ⚡ About me! <br>
-I'm the Captain of Mikkeller Running Club Karlstad but I'm absolutely not a runner
-_And._ I do have a university degree in James Bond knowledge...
+I do have a university degree in James Bond knowledge...
 
 
 📫 How to reach me? send me an email to hej@jenwaller.se
